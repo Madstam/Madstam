@@ -1,4 +1,4 @@
-# Salut, je suis Majda 
+# Salut, je suis Madjda 
 
 Étudiante en Mathématiques et Informatique à l'Université Grenoble Alpes (L2).
 
